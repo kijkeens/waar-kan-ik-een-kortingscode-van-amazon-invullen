@@ -6,7 +6,7 @@ Je hebt een **leuke kortingscode** van Amazon ontvangen, maar weet je waar je de
 
 ### 1. Ga Naar de Amazon-website
 
-De eerste stap is eenvoudig: ga naar de [Amazon-website](https://www.amazon.com). Als je nog geen account hebt, kun je je eenvoudig registreren. Als je al een account hebt, log dan in met je gebruikersnaam en wachtwoord.
+De eerste stap is eenvoudig: ga naar de [Amazon-website](https://amzn.to/3ZJELHE). Als je nog geen account hebt, kun je je eenvoudig registreren. Als je al een account hebt, log dan in met je gebruikersnaam en wachtwoord.
 
 ### 2. Kies Je Producten
 
